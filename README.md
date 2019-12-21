@@ -1,1 +1,0 @@
-# Barts-OCS-Template
